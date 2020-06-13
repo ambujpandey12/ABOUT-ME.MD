@@ -33,7 +33,8 @@ MATRICULATION FROM<a href="https://schools.org.in/kushinagar/09590608213/sant-pu
 INTERMIADTE FROM <a href="https://www.facebook.com/sgsichatakuahinagar/"> SHRI GANDHI SMARAK INTER COLLEGE</a>,HATA,KUSHINAGAR WITH 88% (TOPPER OF SCHOOL ALSO)
 
 
-SKILLS
+![84532410-d481b980-ad03-11ea-8ae6-ec6f179fd150](https://user-images.githubusercontent.com/66781609/84560029-974a1580-ad5d-11ea-95d5-0e530108017f.png)
+
 
  RIGHT HAND BATSMAN WITH CAPTAIN OF CHEMICAL BRANCH AT UNIVERSITY LEVEL
 
