@@ -76,7 +76,7 @@ WANDER
 
 SWIMMING  
 
-![84515257-d8a0dd80-ace9-11ea-8753-11eb6c5c7b51](https://user-images.githubusercontent.com/66781609/84559843-d8d9c100-ad5b-11ea-94df-bb4f7db00730.gif)
+![84514536-cd997d80-ace8-11ea-908c-68fc418f6857](https://user-images.githubusercontent.com/66781609/84559894-69b09c80-ad5c-11ea-9638-deae8e2dbbf4.gif)
 
 
 
