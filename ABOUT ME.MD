@@ -56,7 +56,7 @@ FIRST CRIED ON-12 APRIL2002
 
 MOBILE NO.-7007229799
 
-FAMILY
+![84519250-74811800-acef-11ea-80c4-9f60d30691ec](https://user-images.githubusercontent.com/66781609/84560087-1ccdc580-ad5e-11ea-97c8-a1555ed2dbf9.jpg)
 
 FATHER-Mr.<a href="https://www.facebook.com/profile.php?id=100003894137629&ref=br_rs"> GYAN SHANKAR PANDEY </a> (VICE PRINCIPAL OF SHREE GANDHI SMARAK INTER COLLEGE)
 
