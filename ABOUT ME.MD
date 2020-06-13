@@ -42,7 +42,10 @@ DISTRICT LEVEL SWIMMER
 
 GOOD KNOWLEDGE ABOUT PSYCHOLOGY OF BUSINESS DEVELOPMENT
 
-PERSONAL INFORMATION
+
+![84532046-2fff7780-ad03-11ea-8629-2ad845f9ef1c](https://user-images.githubusercontent.com/66781609/84560062-d7a99380-ad5d-11ea-8d9f-f25a118679f4.png) 
+
+
 ADDRESS
 
 BIRTHPLACE-<a href="https://villageinfo.in/uttar-pradesh/kushinagar/padrauna/mangalpur.html"> MANGALPUR </a>,SIRSIYA KHOYIYA,KUSHINAGAR
