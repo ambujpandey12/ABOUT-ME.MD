@@ -5,7 +5,7 @@
 ![84537886-4101b600-ad0e-11ea-9df9-5aa374aa31a5](https://user-images.githubusercontent.com/66781609/84559362-8d251880-ad57-11ea-89b3-b6dcc71e59bd.jpeg)
 
 
-MY SELF
+My Self
 
 ![84534751-2298bc00-ad08-11ea-9323-12775f7334c3](https://user-images.githubusercontent.com/66781609/84559436-35d37800-ad58-11ea-8dcd-b7ed882918a6.png)
 
