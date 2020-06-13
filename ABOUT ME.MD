@@ -11,7 +11,11 @@ MY SELF
 
 
 
+
 ![84538634-9d190a00-ad0f-11ea-8c2b-742e3912039a](https://user-images.githubusercontent.com/66781609/84559467-7e8b3100-ad58-11ea-9676-a77d1c483af2.png)
+
+![84499927-337a0b00-acd1-11ea-8426-b45f2dfad549](https://user-images.githubusercontent.com/66781609/84559491-b6927400-ad58-11ea-93d1-d034a703a8f3.gif)
+
 
 
 
