@@ -68,9 +68,15 @@ GRANDMOTHER-TARA DEVI
 
 HOBBIES
 
-WANDER
+WANDER 
 
-SWIMMING
+![84515257-d8a0dd80-ace9-11ea-8753-11eb6c5c7b51](https://user-images.githubusercontent.com/66781609/84559843-d8d9c100-ad5b-11ea-94df-bb4f7db00730.gif)
+
+
+
+SWIMMING  
+
+
 
 CRICKET
 
